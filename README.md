@@ -1,6 +1,6 @@
 ## Privacy-Policy
 
-Shiekh Abubakar Mukhtar built the Sheikh Abubakar Mukhtar Zuhudu-1 app and Sheikh Abubakar Mukhtar Alburda-1 as
+Mubarak Ibrahim built the Sheikh Abubakar Mukhtar Zuhudu-1, Sheikh Abubakar Mukhtar Zuhudu--1, Sheikh Abubakar Mukhtar Zuhudu--2, and Sheikh Abubakar Mukhtar Alburda-1 apps as
                   a Free app. This SERVICE is provided by
                   Shiekh Abubakar Mukhtar at no cost and is intended for use as
                   is.
